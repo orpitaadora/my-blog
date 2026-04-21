@@ -18,6 +18,6 @@
 *   **সহ-অভিনেতা চরিত্রে:** আবরার আতহার, আলীরাজ, শাতাফ ফিগার এবং স্যাম ভট্টাচার্য।
 
 ## 📥 রাক্ষস মুভি ডাউনলোড (Rakkhosh Movie Download 2026)
-📦 **[Download Now (Google Drive) 720p](https://xn--e6bb6cg.com/রাক্ষস-মুভি-ডাউনলোড-লিংক-rakkh/)**
+📦 **[Download Now (Google Drive) 720p](https://xn--e6bb6cg.com/rakkhosh-movie-full-hd/)**
 
-📦 **[Download Now (One Drive) 1080p](https://xn--e6bb6cg.com/রাক্ষস-মুভি-ডাউনলোড-লিংক-rakkh/)**
+📦 **[Download Now (One Drive) 1080p](https://xn--e6bb6cg.com/rakkhosh-movie-full-hd/)**
